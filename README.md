@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rishimehdiratta
 - 👀 I’m interested in listening music and spending time in nature.
-- 🌱 I’m currently learning how to crack interview and land a role in Operational Research.
+- 🌱 I’m currently learning how to crack interview and land a role in Operational Research domain.
 - 📫 I can be reached at rishi14march1999@gmail.com
 
 <!---
